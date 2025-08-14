@@ -9,3 +9,5 @@ literally write ^ this down on a sticky note and make sure u see it everyday, th
 now we know how to deal with white trash like this in the future: lawyer up before they get out of line and just a little bit of academia gets to their head
 
 the more he acts up, the more he's going to be put in his place -- fking poser
+
+dont ever let someone like this, with average intelligence, get out of line ever again, always put them back in their place which is some fking hole in the dirt .. fighting about AI? really? with a phd in human genetics? fking moron and an ugly ass who just wont go away, complete loser for life
