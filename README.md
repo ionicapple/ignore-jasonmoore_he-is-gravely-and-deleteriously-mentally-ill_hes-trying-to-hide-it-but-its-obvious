@@ -3,3 +3,5 @@
 also white trash is as white trash does
 
 may God continue to humiliate this pathetic little piece of trash of a man, through me and you.
+
+literally write ^ this down on a sticky note and make sure u see it everyday, there is NOTHING more humiliating than stalking a resigned employee and who she (wants) to sleep with, and fighitng over OLD and OUTDATED science like atac-seq (nobody cares about this anymore, theres so much new stuff). he never made it to stanford/harvard/mit, he's just a nobody, a huge loser in life and that's his divine punishment that he'll never win anything ever not even a lawsuit that he started. he's more annoying than a mosquito, but that's all he's got.
